@@ -12,7 +12,7 @@ About me:
  
  💬 Ask me about my journey into the world of Data
  
- 📫 How to reach me: https://twitter.com/Olufunmi_gemini
+ 📫 How to reach me: https://twitter.com/noonafunmi
 
  ⚡ Fun fact: I love troubleshooting
 
